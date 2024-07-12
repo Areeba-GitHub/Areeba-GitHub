@@ -1,0 +1,6 @@
+- 👋 Hi, I’m 'Fatima'
+- 👀 I’m interested in python
+- 🌱 I’m currently learning...
+- ⭐️ I’m looking to collaborate on Github
+- 🌈 Pronouns: Gentle
+- ☀️ Fun fact: hehehe=laughter
