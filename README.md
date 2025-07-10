@@ -1,6 +1,6 @@
-- 👋 Hi, I’m 'Fatima'
-- 👀 I’m interested in python
+- 👋 Hi, I’m 'Fatima'. You can call me Areeba.
+- 👀 I’m interested in making new projects and freelancing.
 - 🌱 I’m currently learning...
-- ⭐️ I’m looking to collaborate on Github
+- ⭐️ I’m looking to collaborate on Github..
 - 🌈 Pronouns: Gentle
-- ☀️ Fun fact: hehehe=laughter
+- ☀️ I am coding for over 3 years.
